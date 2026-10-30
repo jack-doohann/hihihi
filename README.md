@@ -1,5 +1,3 @@
-— they dont hurt if it's coming from you actually, 
-and I'm not taking anything personally but simply saying your acting like im chasing you around. 
+— nothing is personal coming from you, and nothing hurts. I personally* think your just sitting here
 
-
-im waiting for you to block me before i do it
+thinking I'm chasing you around, I'm waiting for you to man up and have the balls to block me on every platform. so please. 
